@@ -1,2 +1,2 @@
-# Bagpack Nomads - Jouneys & Experiences
+# Bagpack Nomads - Journeys & Experiences
  
